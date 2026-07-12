@@ -38,6 +38,17 @@ The meeting — Act 3's black-void seduction space.
 - **D3 Mardini curtained interior (GQ MENA):** the ritual room — Act 1's
   amulet/bakhour scene texture: curtained light, vintage domestic dread.
 
+## Vimeo reference pack (wonder register, all links verified live)
+- Mardini — Kotn "Karyetna": https://vimeo.com/1161750576 · his warmest work; the Hekayat Teta tone target
+- Mardini — Ballet du Caire: https://vimeo.com/1205256965 · his movement language for the tale sequences
+- Mardini — Kotn "Tefnut": https://vimeo.com/1161739130 · dusk-desert palette, brand polish + his eye
+- Mardini — Jebeliya Bedouins (Atmos): https://vimeo.com/1205260597 · documentary wonder, real faces
+- Mardini — A Portrait of Cairo: https://vimeo.com/1162810878 · his personal thesis film
+- Wes Anderson — "Castello Cavalcanti" (Prada): https://vimeo.com/80059810 · a village built on a soundstage (Cinecittà), warm theatrical storytelling — the Hekayat Teta set logic
+- Sevdaliza — "Shahmaran" (dir. Emmanuel Adjei): https://vimeo.com/283664332 · Middle Eastern myth staged sumptuously in a built world
+- Kahlil Joseph — "Until the Quiet Comes": https://vimeo.com/48551671 · camera-language ref only (slow motion inside a real community); tone is elegiac, not ours
+- Youssef Nabil's films (not on Vimeo): "I Saved My Belly Dancer" and "You Never Left" at https://youssefnabil.com/videos/i-saved-my-belly-dancer/ · golden-age-Egypt dream cinema — the single closest precedent to this project
+
 ## Named refs without images (look them up in prep)
 - **Gregory Crewdson — "Beneath the Roses" era:** night suburbia built on
   soundstages with fog and cinema lighting; the production methodology for our
