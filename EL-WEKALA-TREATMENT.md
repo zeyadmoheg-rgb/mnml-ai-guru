@@ -235,10 +235,42 @@ has clearly beaten the other gets reshot before company moves on.
   bathhouse-interior tableaux dense with community cast — set dressing,
   myth-luxury finish. (Thumbnail shows its one exterior; the video lives
   indoors.)
-- Not on Vimeo, pull directly: Ziya Azazi "Dervish in Progress" + Wekalet
-  El Ghouri tanoura performances (Movement 3 skirt language, YouTube/live).
-- Sound-only refs (any platform): Acid Arab feat. A-WA "Gul l'Abi";
-  mahraganat production weight (Wegz-era Cairo).
+# REFERENCES — YouTube pack (all links verified live)
+
+**The real thing (Egypt):**
+- Al-Tannoura troupe at Wekalet El Ghouri (El Ghouri Palace, 2020) ·
+  https://www.youtube.com/watch?v=qcTu6v_1xdQ · the actual skirt language,
+  LED layers, and drum build inside real Mamluk architecture — Movement 3's
+  source material and the scout target.
+- Ziya Azazi — "Dervish in Progress" · https://www.youtube.com/watch?v=5DFF9WJ-qIU
+  · whirling as contemporary stage art — one spinner, black void, sculptural
+  skirt; how Movement 3 reads in singles.
+- Wegz — "El Bakht" · https://www.youtube.com/watch?v=NafpWQVNaLE (subtitled
+  mirror; official is on Wegz's channel) · Egyptian wedding-hall world, real
+  faces, cool not costume — the local proof that heritage can read
+  contemporary.
+
+**The format (hero front, world behind, one interior):**
+- Childish Gambino — "This Is America" (Hiro Murai) ·
+  https://www.youtube.com/watch?v=VYOjWnS4cMY · the canonical single-interior
+  hero-front/culture-behind staging. STAGING GRAMMAR ONLY — tone is violent;
+  do not put in the client deck.
+- The Carters — "APESHIT" (Ricky Saiz) ·
+  https://www.youtube.com/watch?v=kbMqWXnpXcA · owning a monumental indoor
+  space; poised hero figures against a cultural backdrop, dancers on
+  architecture — Movements 2 & 4's confidence.
+- Little Simz — "Introvert" (Salomon Ligthelm) ·
+  https://www.youtube.com/watch?v=hxfGQ2AJHGk · palace interiors, ceremonial
+  cast and banners behind one calm hero — regal scale with warmth.
+
+**Heroine / indoor folk-modern:**
+- Rosalía — "DI MI NOMBRE" (Henry Scholfield) ·
+  https://www.youtube.com/watch?v=mUBMPaj0L3o · one continuous take through
+  indoor rooms, folklore made pop, heroine owning every frame — her
+  performance register.
+
+**Sound-only refs (any platform):** Acid Arab feat. A-WA "Gul l'Abi";
+mahraganat production weight (Wegz-era Cairo).
 
 # INTERNAL DNA (why this is credibly THEIRS)
 - El Behiry: the Vogue souk shadow work is Movement 1; the KOJAK drapery
