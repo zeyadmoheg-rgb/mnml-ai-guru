@@ -1,6 +1,12 @@
 # Studio Project Concepts II — Egyptian Myth & Magic
 ### El Behiry × Mardini · Revised direction per creative director
 
+> **REVISION (director's note):** no horror, nothing scary — the magic must be
+> beautiful, warm, wondrous. EL NADAHA is parked (its register reads as dark
+> fairy tale / ghost story). New lead options below in
+> `project-concepts-myth-magic-v2.md`: **NOUR** (Hekayat Teta anthology) and
+> **AROUSET EL NIL** reframed as radiant, not sacrificial.
+
 Brief refined: studio + set design + Egyptian culture + real narrative — now
 specifically **myth and magic**.
 
