@@ -215,21 +215,30 @@ has clearly beaten the other gets reshot before company moves on.
 
 ---
 
-# REFERENCES (all Vimeo links verified live)
-- Rosalía — "Pienso En Tu Mirá" (CANADA) · https://vimeo.com/282306615 ·
-  the grammar: heroine front, folklore as living cast, folk-modern cool.
-- Jamie xx — "Gosh" (Romain Gavras) · https://vimeo.com/184133283 ·
-  monumental cast choreography around one figure, zero VFX — Movements 2 & 4.
+# REFERENCES v3 — indoor / Mardini register (all Vimeo links verified live)
+- Clément Cogitore — "Les Indes Galantes" · https://vimeo.com/205516189
+  (director's own upload) · THE anchor: shot entirely indoors on the Opéra
+  Bastille stage — street dance culture as monumental, sweaty, real cast
+  inside classical architecture. Movements 2 & 3's energy and staging.
+- Mashrou' Leila — "Roman" (dir. Jessy Moussallem) · https://vimeo.com/226458557
+  · Vimeo Staff Pick; one hundred Arab women as the cast, made explicitly
+  against the Western victim narrative — Mardini's exact politics and warm,
+  grainy texture; courtyard architecture reads like our set. (Honest note:
+  partly exterior — it's here for cast, politics, and grade, not location.)
+- Ibeyi — "Deathless" · https://vimeo.com/351365938 · one institutional
+  interior, ritual cast around the artists, grain and stillness — the
+  indoor community-tableau texture for Movement 2.
 - Sevdaliza — "HUMAN" (Emmanuel Adjei) · https://vimeo.com/456842243 ·
-  poise under gaze inside an ornate arena — her presence and the light.
-- Acid Arab — "Gul l'Abi" feat. A-WA · https://vimeo.com/261659580 ·
-  folk voice × electronic weight — the soundtrack blueprint.
+  indoor ornate riding hall; one poised woman performing under a watching
+  world's gaze — her presence, and lantern-warm interior light.
 - Sevdaliza — "Shahmaran" (Emmanuel Adjei) · https://vimeo.com/283664332 ·
-  built-interior myth-luxury density — set dressing and finish.
+  bathhouse-interior tableaux dense with community cast — set dressing,
+  myth-luxury finish. (Thumbnail shows its one exterior; the video lives
+  indoors.)
 - Not on Vimeo, pull directly: Ziya Azazi "Dervish in Progress" + Wekalet
-  El Ghouri tanoura performances (Movement 3 skirt language) · Clément
-  Cogitore "Les Indes Galantes" (operadeparis.fr, 3e Scène) — culture as
-  monumental cast on a classical stage.
+  El Ghouri tanoura performances (Movement 3 skirt language, YouTube/live).
+- Sound-only refs (any platform): Acid Arab feat. A-WA "Gul l'Abi";
+  mahraganat production weight (Wegz-era Cairo).
 
 # INTERNAL DNA (why this is credibly THEIRS)
 - El Behiry: the Vogue souk shadow work is Movement 1; the KOJAK drapery
