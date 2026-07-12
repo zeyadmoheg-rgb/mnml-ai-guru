@@ -89,13 +89,26 @@ armor for the whole project).
   energy, slow motion, drums; the culture is never behind glass, it
   surrounds and outnumbers the fashion. He also gets the doc cut.
 
-## Vimeo references (external only, links verified live)
-- **Sevdaliza — "Shahmaran" (Emmanuel Adjei):** https://vimeo.com/283664332 ·
-  the exact format: heroine front of frame, community cast arranged behind
-  her inside one built world, myth-luxury tone.
-- **Kahlil Joseph — "Until the Quiet Comes":** https://vimeo.com/48551671 ·
-  slow-motion community life as cinema; how the background plane should feel
-  (language ref, not tone).
+## Vimeo references v2 (external only, all links verified live)
+- **Rosalía — "Pienso En Tu Mirá" (dir. CANADA):** https://vimeo.com/282306615
+  · the masterclass in exactly our device: pop heroine front of frame, her
+  culture's folklore staged as living cast and tableaux behind her —
+  folkloric iconography made ice-cool and contemporary. Spain's version of
+  what we're doing with Egypt.
+- **Jamie xx — "Gosh" (dir. Romain Gavras):** https://vimeo.com/184133283 ·
+  one figure revered by a sea of synchronized cast in monumental
+  architecture, zero VFX — the scale and cast-choreography benchmark for
+  Movements 2 and 4.
+- **Sevdaliza — "HUMAN" (dir. Emmanuel Adjei):** https://vimeo.com/456842243
+  · a woman performing at the center of an ornate arena while a seated
+  world watches — front-plane poise against a charged architectural
+  interior; the dignity-under-gaze tone.
+- **Acid Arab — "Gul l'Abi" feat. A-WA:** https://vimeo.com/261659580 ·
+  Arab folk voice fused with electronic production — the sonic blueprint
+  (zar drums × mahraganat) carried into image.
+- **Sevdaliza — "Shahmaran" (dir. Emmanuel Adjei):** https://vimeo.com/283664332
+  · heroine front of frame, community cast arranged behind her inside one
+  built interior world; the myth-luxury texture target.
 
 ## Named references (not on Vimeo — pull in prep)
 - **Clément Cogitore — "Les Indes Galantes" (Paris Opera 3e Scène):**
